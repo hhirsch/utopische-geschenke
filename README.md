@@ -18,6 +18,9 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 ## Bundesverband Selbsthilfe Körperbehinderter e.V.
 - https://www.bsk-ev.org/mitglieder-spender/spender-und-foerderer/einfach-online-spenden/
 
+## Essenstreff Freiburg
+- **Spenden** http://www.essenstreff-freiburg.de/Mitgliedschaften-und-Spenden-3.html
+
 ## Tibet Initiative Deutschland 
 Hier gibt es leider keine Angabe ob fair Produziert wird.
 - http://www.tibet-online-shop.de/
