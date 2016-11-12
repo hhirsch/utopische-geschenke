@@ -15,6 +15,9 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 ## UNO-Flüchtlingshilfe
 - https://www.uno-fluechtlingshilfe.de/
 
+## Bundesverband Selbsthilfe Körperbehinderter e.V.
+- https://www.bsk-ev.org/mitglieder-spender/spender-und-foerderer/einfach-online-spenden/
+
 ## Tibet Initiative Deutschland 
 Hier gibt es leider keine Angabe ob fair Produziert wird.
 - http://www.tibet-online-shop.de/
