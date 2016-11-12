@@ -15,3 +15,4 @@ Hier gibt es leider keine Angabe ob fair Produziert wird.
 
 ## Tibetan Nuns Project
 - https://tnp.org/products/
+- **Spende Verschenken** https://tnp.org/product/tribute-cards/
