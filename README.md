@@ -12,6 +12,9 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 ## Ärzte ohne Grenzen
 - https://www.aerzte-ohne-grenzen.de/spende-geschenk
 
+## UNO-Flüchtlingshilfe
+- https://www.uno-fluechtlingshilfe.de/
+
 ## Tibet Initiative Deutschland 
 Hier gibt es leider keine Angabe ob fair Produziert wird.
 - http://www.tibet-online-shop.de/
