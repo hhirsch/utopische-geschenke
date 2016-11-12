@@ -9,6 +9,9 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 ## Greenpeace (Umweltschutz)
 - https://www.greenpeace-magazin.de/warenhaus
 
+## Ärzte ohne Grenzen
+- https://www.aerzte-ohne-grenzen.de/spende-geschenk
+
 ## Tibet Initiative Deutschland 
 Hier gibt es leider keine Angabe ob fair Produziert wird.
 - http://www.tibet-online-shop.de/
