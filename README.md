@@ -8,7 +8,7 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 ## Greenpeace (Umweltschutz)
 - https://www.greenpeace-magazin.de/warenhaus
 
-## Tibet Initiative Deutschland
+## Tibet Initiative Deutschland (Keine Angabe ob fair Produziert)
 - http://www.tibet-online-shop.de/
 
 ## Tibetan Nuns Project
