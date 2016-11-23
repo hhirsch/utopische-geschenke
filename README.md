@@ -18,6 +18,10 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 ## Bundesverband Selbsthilfe Körperbehinderter e.V.
 - https://www.bsk-ev.org/mitglieder-spender/spender-und-foerderer/einfach-online-spenden/
 
+## Atmosfair
+CO2-Emissionen ausgleichen
+- https://www.atmosfair.de/
+
 ## Essenstreff Freiburg
 - **Spenden** http://www.essenstreff-freiburg.de/Mitgliedschaften-und-Spenden-3.html
 
