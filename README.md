@@ -6,8 +6,11 @@ Ehrenmitgliedschaften, Spenden und Lebensmittel.
 - **Öko und Fair** https://www.bundladen.de
 - **Mitgliedschaft** http://darmstadt.bund.net/aktiv_werden/mitglied_werden/mitgliedschaft_verschenken/
 
-## Greenpeace (Umweltschutz)
+## Greenpeace
 - https://www.greenpeace-magazin.de/warenhaus
+
+## Sea-Shepherd
+- https://sea-shepherd.de/
 
 ## Ärzte ohne Grenzen
 - https://www.aerzte-ohne-grenzen.de/spende-geschenk
