@@ -28,9 +28,6 @@ CO2-Emissionen ausgleichen
 ## Essenstreff Freiburg
 - **Spenden** http://www.essenstreff-freiburg.de/Mitgliedschaften-und-Spenden-3.html
 
-## Bruce Lee Foundation
-- https://bruceleefoundation.org/donate/
-
 ## Tibet Initiative Deutschland 
 Hier gibt es leider keine Angabe ob fair Produziert wird.
 - http://www.tibet-online-shop.de/
